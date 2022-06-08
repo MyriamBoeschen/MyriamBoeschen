@@ -1,4 +1,4 @@
-# Hi, I’m @MyriamBoeschen :v:
+# Hi, I’m Myriam :v:
 
 I’m interested in Computational Life Science -> Bioinformatics -> Oncolgy & Genetics. :dna:
 
